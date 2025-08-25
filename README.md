@@ -1,6 +1,6 @@
 <div align="center"> <img src="https://files.catbox.moe/lvcj6i.webp"> </div>
 <div align=center> <img src="https://64.media.tumblr.com/be39c894c6ade2abb3eefb4e62f50ab5/1116e37fa4617e25-b5/s100x200/0185c5d3bd9826d2a2681e66f8714e97492af88c.gifv"> </div>
-<p align=center> or aju　-　8teen　 ♡　     </p>
+<p align=center> or aju　-　silly　 ♡　     </p>
 <br>
 <div align="center"> <img src="https://64.media.tumblr.com/3aa03c2aa8fbe1b09dca5b5b05fcd1f2/05f951fd3ad03b7a-0c/s250x400/56420611f6fdf33e03069e370593707cae47762a.gifv"> </div>
 <div align="center"> <a href="https://kittyirino.atabook.org"> my atabook </a>　 <a href="https://spychiatrist.straw.page/"> my strawpage </a> </div>
